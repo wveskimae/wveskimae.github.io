@@ -1,2 +1,1 @@
-# wveskimae.github.io
-# Namecheap leht on prügi.
+# Tahaks koju minna tho
